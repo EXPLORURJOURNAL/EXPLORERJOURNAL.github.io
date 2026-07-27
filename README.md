@@ -1,1 +1,1 @@
-# SHIVAMJOURNAL.github.io
+# EXPLORURJOURNAL.github.io
