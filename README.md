@@ -1,1 +1,1 @@
-# EXPLORURJOURNAL.github.io
+# WANDERURJOURNAL.github.io
